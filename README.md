@@ -1,4 +1,4 @@
-# wholesale-Stretch-Film-Wrap-in-Carson | Bluerose Packaging
+# Wholesale Stretch Film Wrap in Carson | Bluerose Packaging
 Buy wholesale stretch film and wrap in Carson with fast delivery and bulk pricing. Secure your shipments with durable, high-quality stretch wrap designed for industrial and commercial use. Order now!
 ---
 
